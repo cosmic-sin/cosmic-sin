@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @cosmic-sin
+- 👋 Hi, I’m Anjana
 - 👀 I’m interested in some werid stuff
 - 🌱 I’m currently learning engineering
 - ⚡ Fun fact: might be little lazy
